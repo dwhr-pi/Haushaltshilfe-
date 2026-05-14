@@ -3,7 +3,7 @@
 Haushaltshilfe zum Putzen der Wohnung in der Stadt Essen gesucht? Wecasa wäre ein in Frage kommender Dienstleister-/Anbieter. Gibt es andere, bitte Preise und Erfahrungen mit angeben, sowie deren URL!
 
 
-Dieses kleine privte Projekt zielt auf die Leserschaft des Stadtteils Rüttenscheid der Stadt Essen von [nebenan.de](https://www.nebenan.de), auf dessen Nachbarschaftsportal ich häufiger aktiv bin. Soll verschiedene Fragen und Antworten geben. 
+Dieses kleine privte Projekt zielt auf die Leserschaft des Stadtteils Rüttenscheid der Stadt Essen von [nebenan.de](https://www.nebenan.de), auf dessen Nachbarschaftsportal ich häufiger aktiv bin. Soll verschiedene Fragen und Antworten geben. Da ich auch auf [nextdoor.de](https://www.nextdoor.de) vertreten bin, interessiert es mich auch, welche Erfahrungen Ihr dazu macht. 
 
 ## **Knackpunkte** 
 gibt es bei allen Anbietern, über die man sich zuvor und zusätzlich im Klaren sein sollte. 
