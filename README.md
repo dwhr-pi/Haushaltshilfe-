@@ -39,7 +39,7 @@ Via Freibetrag, MiniJob, Unselbständig oder Selbständig?
 Wird gestohlen/betrogen? 
 Beidseitige Bschwerde möglich?
 
-Laut geringfügig Beschäftigten Gestz ist eine 4 Stündige Beschäftigung ohne An-/Abfahrt zur Arbeitstelle zu berechnen üblich. Die Fahrkosten können per Steuererklärung im Einzelfall Angerechnet und zurück erstattet werden. 
+Laut geringfügig Beschäftigten Gesetz ist eine 4 Stündige Beschäftigung ohne An-/Abfahrt zur Arbeitstelle zu berechnen üblich. Die Fahrkosten können per Steuererklärung im Einzelfall Angerechnet und zurück erstattet werden. 
 
 Fragen für Wiedereinsteiger oder Neueinsteiger in das Berufsleben, die Rente, Sozialamt oder vom Arbeitsamt zu leben stehen offen zu klären. Auch ob selbständige Tätigkeit es ist oder eher doch Unselbständig gearbeitet wird. Haushaltshilfe müsste eigentlich Unselbständig sein...
 
