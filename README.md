@@ -67,3 +67,184 @@ Stand: 2026
 - **Telefon:** 
 - **E-Mail:** 
 - **URL:** https://www.wecasa.de/haushaltshilfe/orte/essen  
+- **Preise in Essen:**
+   - **Regelmäßige Reinigung:** etwa 24,90 €/Std.
+   - **Einmalige Reinigung:** 26,90 €/Std.
+   - **Grundreinigung:** 29,90 €/Std. (Mindestdauer 2 Std.)
+- **Erfahrungen:** Sehr gute Bewertungen (~4,9 / 5), viele positive Rückmeldungen zu Gründlichkeit und Pünktlichkeit.  
+- **Steuerlich absetzbar (§35a EStG):** ja.
+
+---
+
+### 2. Helpling
+- **Leistungen:** Haushaltshilfe
+- **Adresse:**
+- **Telefon:** 
+- **E-Mail:** 
+- **URL:** https://www.helpling.de/de_en/cleaner/essen/  
+- **Preise:** Zwischen ca. 16,90 € und 20,40 €/Std. (je nach Reinigungskraft)
+- **Erfahrungen:** Viele Profile mit Bewertungen, Filter nach Erfahrung und Rating möglich. Plattform mit guter Reputation.
+- **Steuerlich absetzbar (§35a EStG):** unbekannt
+  
+---
+
+### 3. MaidEasy
+- **Leistungen:** Haushaltshilfe
+- **Adresse:**
+- **Telefon:** 
+- **E-Mail:** 
+- **URL:** https://www.maideasy.de/essen/haushaltshilfe  
+- **Preise:** Ab ca. 49 € pro Reinigung (abhängig von Größe und Umfang)
+- **Erfahrungen:** Eigene Reinigungskräfte, Plattformbewertungen sichtbar.
+- **Steuerlich absetzbar (§35a EStG):** unbekannt
+
+---
+
+### 4. SPIC AND SPAN
+- **Leistungen:** Haushaltshilfe
+- **Adresse:**
+- **Telefon:**
+- **E-Mail:** 
+- **URL:** https://spicandspan.de/en/cities/essen-cleaning-service  
+- **Preise:** Ab ca. 28,90 €/Std. bei regelmäßigen Terminen
+- **Erfahrungen:** Flexibel, Möglichkeit zur festen Reinigungskraft.
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 5. BOOK A TIGER
+- **Leistungen:** Haushaltshilfe
+- **Adresse:**
+- **Telefon:** 
+- **E-Mail:** 
+- **URL:** https://www.bookatiger.com/de-en/cleaner/essen  
+- **Preise:** Ab ca. 22,90 €/Std.
+- **Erfahrungen:** Versicherung inklusive, Ersatz bei Ausfall, App-basiertes System.
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+## Lokale Anbieter in Essen (Auswahl)
+
+- [heim & rein](https://heim-rein.de/) (ca. 39 €/Std. + Anfahrt)
+- [Cleankraft Gebäudereinigung](https://cleankraft.de/)
+- [Agentur für Haushaltshilfe Essen](https://www.agentur-fuer-haushaltshilfe.de/)
+- [ALLTAGSHELFER ZUHAUSE GmbH](https://www.alltagshelfer-zuhause.de/)
+- [die HAUSHELDIN](https://www.hausheldin.de/)
+- [Mr. Cleaner Essen](https://www.mrcleaner.de/essen/)
+- [Haushaltshilfe Essen-Kettwig](https://haushaltshilfe-essen-kettwig.de/)
+- [Reinigungskraft und Seniorenbetreuung]() Alfred-Straße 120, 45131 Essen, Tel: +49 1578 5112195 (Auf Googlemaps hat der Anbieter einen Schreibfehler bei Betreuung hinterlassen, er schreibt Seniorenbetreeung. 
+- [JuE Clean](https://www.jue-clean.de/)
+- [Agentur Mary Poppins Essen](https://www.agenturmarypoppins.de/standort/essen/)
+- [Haushaltshilfe Kreis Ruhr](https://haushaltshilfekreisruhr.de/)
+
+**Hinweis**:
+Viele lokale Anbieter berechnen Anfahrt oder Material zusätzlich.
+
+---
+
+## Preisübersicht (grob vereinfacht)
+
+| Anbieter        | Preis/Std.        | Typ         |
+|---------------|------------------|------------|
+| Wecasa        | 24,90–29,90 €    | Plattform  |
+| Helpling      | 16,90–20,40 €    | Plattform  |
+| MaidEasy      | ab 49 € / Termin | Service    |
+| SPIC AND SPAN | ab 28,90 €       | Service    |
+| Book A Tiger  | ab 22,90 €       | Plattform  |
+| heim & rein   | ca. 39 €         | Lokal      |
+
+---
+
+## Haushaltshilfe & Seniorenbetreuung – Essen (mit Kontakt)
+
+Leider habe ich zur Zeit keine weiteren Infos zu den nachfolgenden Anbietern erarbeitet.
+
+### 🔹 **Alltagshelfer Zuhause GmbH**
+- **Leistungen:** Haushaltshilfe, Seniorenbetreuung, Begleitung, Einkaufsservice uvm.  
+- **Adresse:** Steeler Str. 272 / 45138 Essen-Huttrop (auch Dellwig)  
+- **Telefon:** 0201-36804410  
+- **E-Mail:** info@alltagshelfer-zuhause.de  
+- **URL:** https://www.alltagshelfer-zuhause.de/
+- *(deckt klassische Reinigung und Alltagsunterstützung ab)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **heim & rein e.K.**
+- **Leistungen:** Haushaltshilfe, Seniorenbegleitung, Reinigung nach Hausfrauenstandard  
+- **Adresse:** Byfanger Straße 42, 45257 Essen  
+- **Telefon:** 0201-45843760  
+- **E-Mail:** info@heim-rein.de  
+- **URL:** https://heim-rein.de/
+- *(seit Jahren lokal etabliert mit persönlichem Ansprechpartner)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **Eli die Fee Seniorendienst (Essen)**
+- **Leistungen:** Haushaltshilfe, Alltagsbetreuung, Begleitung, Freizeitangebote  
+- **Adresse:** Steeler Str. 378, 45138 Essen  
+- **Telefon:** 0201-89093430  
+- **E-Mail:** info@elidiefee.de  
+- **URL:** https://www.elidiefee.de/
+- *(Alltagsunterstützung mit festen Betreuungszeiten)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **Vom Fleck weg – Essener Agentur für Hilfe im Haushalt**
+- **Leistungen:** Haushalt, Alltagsbetreuung, Begleitung zum Arzt/Behörde  
+- **Adresse:** Girardetstraße 1-5, 45131 Essen  
+- **Telefon:** 0201-8214680  
+- **E-Mail:** ruhrgebiet@familienservice.de  
+- **URL:** https://www.familienservice.de/web/essen/vom-fleck-weg
+- *(Agenturdienstleister für private und soziale Unterstützung)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **Pflegehelden® Essen (24h Betreuung & Pflege inklusive Haushalt)**
+- **Leistungen:** Seniorenbetreuung, 24h Pflege, Grundpflege, Haushalt  
+- **Adresse:** Reuenberg 96, 45357 Essen  
+- **Telefon:** 0201-89076349  
+- **E-Mail:** essen@pflegehelden.de  
+- **URL:** https://www.pflegehelden.de/standorte/nordrhein-westfalen/essen/nord/
+- *(bundesweit bekannte Agentur für Betreuung & Pflege)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+## Weitere regionale Kontakte (Essen & Umkreis)
+
+### 🔹 **SeniorenLebenshilfe – Thekla Stiller & Fatee Khalil**
+- **Leistungen:** Seniorenbegleitung, Haushaltshilfe  
+- **Telefon:** 0201-89067295 / 0201-89066990  
+- **E-Mail:** info@senleb.de  
+- **URL:** https://www.seniorenlebenshilfe.de/
+- *(jeweils andere Ansprechpartner am Standort Essen)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **Die Alltagshelfer – Thomas Denkler**
+- **Leistungen:** Haushaltshilfe  
+- **E-Mail:** info@die-alltagshelfer-essen.de  
+- **URL:** https://die-alltagshelfer-essen.de/
+- *(lokaler Dienstleister, direkte Ansprechpartner)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt 
+
+---
+
+### 🔹 **KÖTTER Services – Reinigungsdienst Essen**
+- **Leistungen:** Reinigungsservice im Objekt- & Wohnbereich
+- **Telefon:** +49 201-2788-388
+- **E-Mail:** info@koetter.de
+- **URL:** https://www.koetter.de/
+- *(professioneller Reinigungsdienst trotz Fokus auf Objekte & Einrichtungen)*
+- **Steuerlich absetzbar (§35a EStG):** unbekannt
+
+- Verwant mit bekannten Kötter Security? Von daher Objekt-Schutz/Bewachung.
+
+
+  
