@@ -1,4 +1,4 @@
-# Haushaltshilfe in Essen und Umgebung
+# Haushaltshilfe in Stadt Essen und Umgebung
 
 Haushaltshilfe zum Putzen der Wohnung in Essen gesucht?  
 Wecasa wäre ein möglicher Dienstleister bzw. Anbieter. Gibt es weitere Empfehlungen, Erfahrungen oder Preisvergleiche?
